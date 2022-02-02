@@ -5,3 +5,5 @@ See the proof here: https://github.com/WorkReform/WorkReformScandal/tree/main/wo
 Mirrored (and hosted) [here](https://work.is-just-a.dev/).
 
 Learn more [here](https://workreformscandal.com/).
+
+https://reddit.com/r/Workers_Revolt is owned by the original owner of r/WorkReform and goes over this same stuff.
