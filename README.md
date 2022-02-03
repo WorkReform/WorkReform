@@ -7,3 +7,10 @@ Mirrored (and hosted) [here](https://work.is-just-a.dev/).
 Learn more [here](https://workreformscandal.com/).
 
 https://reddit.com/r/Workers_Revolt is owned by the original owner of r/WorkReform and goes over this same stuff.
+
+Also
+
+![](https://oliy.is-just-a.dev/oqwv0d_12124.png)
+![](https://oliy.is-just-a.dev/yqplb_12123.png)
+
+Censorship is real.
